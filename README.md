@@ -1,3 +1,6 @@
 # hello-world
 Tutorial
-Hyperstitional cybernetics researcher
+
+Hyperstitional Cybernetics Researcher
+Lemurian Timelord
+
